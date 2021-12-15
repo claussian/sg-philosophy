@@ -1,1 +1,1 @@
-# sg-philosophy
+# Singapore Philosophy Group
